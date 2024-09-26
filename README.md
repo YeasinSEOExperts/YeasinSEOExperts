@@ -4,7 +4,7 @@
 I’m MD Yeasin Arafat a professional advanced SEO Expert.  I love Helping & Solving SEO Problems.  I Give Opinions On SEO, How you can grow your Website & organic traffic. I do Website SEO for user-friendly and Google roles. I have 2 years experiences of SEO. Can you want to Grow your business & organic traffic? You Contact me.
 MD Yeasin Arafat
 
-Skills: Google analytics / Google Search Console / Backlinks/ SEO Audit / On-Page SEO
+Skills: 🎯Google analytics 🎯Google Search Console 🎯 Backlinks 🎯 SEO Audit 🎯 On-Page SEO 🎯 Competitor analysis 🎯 Keyword Research
 
 - 🔭 I’m currently working on A Service Website SEO 
 - 🌱 I’m currently learning Email Marketing 
